@@ -1,11 +1,2 @@
 #Scraper
-r
-r
-r
-r
-r
-r
-r
-r
-rr
-f
+
