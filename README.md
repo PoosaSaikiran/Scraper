@@ -1,11 +1,1 @@
 #Scraper
-yy
-y
-yyy
-y
-yy
-yy
-y
-y
-yy
-k
