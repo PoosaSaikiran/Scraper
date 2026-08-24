@@ -1,9 +1,1 @@
 #Scraper
-g
-g
-g
-g
-g
-g
-g
-g
