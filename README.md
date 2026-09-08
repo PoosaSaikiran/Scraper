@@ -1,10 +1,1 @@
 #Scraper
-n
-n
-nn
-n
-n
-n
-nj
-nn
-j
